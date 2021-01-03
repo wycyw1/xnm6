@@ -12,3 +12,5 @@
 
 购买会员地址 http://hy.t458.com/
 
+小妲己直播地址： http://xnm6.com
+
