@@ -10,7 +10,7 @@
 
 亮点功能 可搜索并关注主播！视频搜索功能可搜万部全网视频！
 
-APP下载地址 [url]dz.n6m8.com[/url
+APP下载地址 dz.n6m8.com
 
 
 商品属性特殊 平台跑路概不补偿退款等 只能折扣给其他平台会员
@@ -19,7 +19,7 @@ APP下载地址 [url]dz.n6m8.com[/url
 
 
 
-
+[url=https://bbs.s9kh7.xyz/2048/post.php?fid=136]https://bbs.s9kh7.xyz/2048/post.php?fid=136[/url]
 
 
 
